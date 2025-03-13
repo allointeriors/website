@@ -13,7 +13,7 @@ Our Services:
 • Accessorising  
 • Decluttering
 
-### Why Choose Us?
+### Why Choose Us
 
 Local Expertise, based in Dorking. We understand the preferences of local buyers and have personal experience of buying and selling homes in the local area.
 
