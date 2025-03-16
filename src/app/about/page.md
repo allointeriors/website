@@ -1,13 +1,7 @@
 ## About Us ...
 
-We live in Surrey with our other halves, kids and dogs.
-
-Previous to starting our interior design business, we have completed home staging for clients and estate agents, styling for pubs and worked on interior design projects for friends. Hannah is currently project managing her own home renovation from concept to completion.
-
-Hannah has been an avid reader of House & Garden since the age of 6. Since the age of 11, she has been decorating her own house & planning renovations in home built camps! She regularly carries out various creative hobbies such as upcycling furniture, making pinboards, table decorating and wreath making.
-
-Between us, we have done various interior design courses and RIBA seminars, as well as shadowing interior designers.
-
-Steph specialises in textiles, upholstery, cushion and curtain making and also has a passion for painting.
-
-We believe that family living shouldnt mean compromising on style
+We are Hannah and Stephanie, interior designers based in the Surrey Hills, who want to inspire others with our love for elevating our everyday spaces
+ 
+Between us we have completed various interior design courses, attended RIBA seminars and shadowed other interior designers.  However, it is our years of experience that have driven us to create "allo interiors". We have designed and styled pub interiors, staged homes to sell and completed projects for friends and family. We take pride in transforming the ordinary into something beautiful; upcycling Facebook marketplace finds, upholstering furniture and creating spectacular interiors to suit every family function.
+ 
+Our passion and purpose is to bring our services to everyone. We have designed packages to suit everyone's budget and need, so designer interiors can be achievable for anyone who wants a life less ordinary!
