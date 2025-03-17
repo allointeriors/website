@@ -40,6 +40,7 @@
 
 body {
   font-family: 'Baskerville', 'Libre Baskerville', serif;
+  font-size: 1.2rem;
   line-height: 1.6;
   color: var(--foreground);
   background-color: var(--background);
